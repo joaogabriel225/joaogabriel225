@@ -7,7 +7,7 @@
 - Utilozo esse espaço para minha organização e compartilhamento dos meus rojetos desenvolvidos
 - Gosto muito de ler a fazer caminhadas no final da tarde
 - amo minha familia e de passar tempo com meus amigos 🥰🥰
-- * ## ADORO PARIS 
+-  ## ADORO PARIS 
 
 * ## Você pode entra em contato comigo pelo meu email 📧
 
